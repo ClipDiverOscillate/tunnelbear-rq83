@@ -1,4 +1,4 @@
-
+Enhance your TunnelBear experience with advanced TunnelBear Connector | camouflage-mode + high-speed-servers, the #1 connector. Includes camouflage-mode and high-speed-servers for
 
 
 
